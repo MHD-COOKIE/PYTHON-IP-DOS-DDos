@@ -4,7 +4,9 @@ Only for Educational Purpose
 
 
 IF YOU LIKE MY STUFF PLEASE SUPPORT ME ON PATREON 5$ ONLY
-patreon.com/MHDcookie
+
+www.patreon.com/MHDcookie
+
 
 
 
