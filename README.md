@@ -1,5 +1,9 @@
 Python Sciprt for Dos/Ddos 
 Only for Educational Purpose 
+
+
+
+
 Requirements:
 PYTHON
 Script uses python built in libraries so no need of anything else
