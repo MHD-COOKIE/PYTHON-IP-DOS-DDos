@@ -3,6 +3,13 @@ Only for Educational Purpose
 
 
 
+IF YOU LIKE MY STUFF PLEASE SUPPORT ME ON PATREON 5$ ONLY
+patreon.com/MHDcookie
+
+
+
+I will be coming with alot of more projects
+
 
 Requirements:
 
