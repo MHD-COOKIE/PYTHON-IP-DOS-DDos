@@ -37,3 +37,5 @@ I have tested it on alot of IPs and it WORKS 100%
 
 ME USING THE TOOL:
 https://streamable.com/f665i5
+
+And If you wanna BAM some ROUTERs You can do with it FOR SECURITY AND EDUCATION PURPOSE ONLY
